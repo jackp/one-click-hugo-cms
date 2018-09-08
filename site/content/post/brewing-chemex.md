@@ -24,4 +24,4 @@ The most visually distinctive feature of the asdf asdf Chemex is the heatproof w
 
 For a design piece that became popular post-war at a time of Modernism and precision manufacture, this juxtaposition of natural wood and the organic nature of a hand-tied knot with the laboratory nature of glassware was a distinctive feature of its appearance.
 
-![](/img/about-reinvest-profits.jpg)
+![null](/img/about-reinvest-profits.jpg)
